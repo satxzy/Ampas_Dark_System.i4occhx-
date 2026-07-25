@@ -1,1 +1,1 @@
-# Ampas_Dark_System.i4occhx-
+Crack By @yatimitu123 Github Ini Telah Diawasi Oleh Dark
